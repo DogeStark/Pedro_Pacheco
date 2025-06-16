@@ -1,4 +1,3 @@
-# Pedro_Pacheco
 
 - 👋 Hi, I’m @Doge-Stark
 - 👀 I’m interested in games , programing and 3D printing
